@@ -1,1 +1,0 @@
-# Hallen-Cj-Corpuz HELLO!
